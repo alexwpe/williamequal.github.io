@@ -1,2 +1,2 @@
-# williamequal.github.io
+# williamequal
 William E.
