@@ -1,2 +1,0 @@
-# williamequal
-William E.
